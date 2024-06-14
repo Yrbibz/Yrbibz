@@ -1,3 +1,3 @@
 **Welcome!**
 
-![](https://media.tenor.com/yv3aw4syrF8AAAAM/fluttershy-mlp-fluttershy.gif)
+![](hthttps://s2.ezgif.com/tmp/ezgif-2-791a541a39.gif)
